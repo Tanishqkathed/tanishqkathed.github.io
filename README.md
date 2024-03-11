@@ -1,1 +1,1 @@
-# yashpal-jat.portfolio
+# tanishq-kathed.portfolio
